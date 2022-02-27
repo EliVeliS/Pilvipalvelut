@@ -22,7 +22,6 @@
 > **Mitä pohdit päivän aikana?**
 * TikTok vie puhelimesta paljon akkua
 * Miksi Maanantai kestää kauemmin kuin viikonloppu?
-* Miksi vietin 10 vuotta elämästä hoitoalalla?
     * Toisaalta yks mummo sanoi katuvansa eniten sitä, ettei sanonu tarpeeksi ihmisille, että painukoot v***uun. Se oli tärkee opetus.
     * Mut toisaalta mua uhatiin vähän liian monta kertaa puukolla
         * Metsästyskiväärillä uhattiin vaa kerran. Se oli ihan jees päivä.
